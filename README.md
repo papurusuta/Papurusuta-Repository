@@ -1,3 +1,3 @@
 ## Papurusuta Repository  
   
-®”õ’†‚Å‚·
+ã¾ã æ•´å‚™ä¸­ã§ã™
